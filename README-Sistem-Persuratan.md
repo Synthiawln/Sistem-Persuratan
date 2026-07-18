@@ -101,4 +101,4 @@ Melalui proyek ini saya belajar menyusun alur sistem multi-role (Kepala Sekolah 
 ---
 
 ## Kontak
-Synthia Wulandari — [Synthiawln@gmail.com](mailto:Synthiawln@gmail.com) · [LinkedIn](https://linkedin.com/in/synthia-wln)
+Synthia Wulandari — [synthiawln@gmail.com](mailto:synthiawln@gmail.com) · [LinkedIn](https://www.linkedin.com/in/synthia-wulandari)
